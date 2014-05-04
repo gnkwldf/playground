@@ -1,9 +1,4 @@
-﻿blablabla
-blablabla
-blablabla
-blablabla
-blablabla
-blablabla
+OH MON DIEU UN PHALLUS VOLANT !
 
 # Titre du readme
 
